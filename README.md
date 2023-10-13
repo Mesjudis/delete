@@ -1,2 +1,4 @@
-# delete
-Pallet-txt.delete\\HTML(www.\google.HTTPS\content=verify 
+delete impeding data
+(open) 
+close open data
+()
